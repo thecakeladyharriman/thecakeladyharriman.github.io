@@ -26,6 +26,7 @@ We ship! [Call us](tel:18453950653) or [email us](mailto:questions@thecakeladyha
 - [Instagram](https://www.instagram.com/originalcakelady/)
 - [Google Maps](https://goo.gl/maps/NAPLWLsCb5Sj2cEA9)
 - [Yelp](https://www.yelp.com/biz/the-cake-lady-desserts-and-cafe-harriman)
+- [Watch Gordon Ramsay try Sharyn's carrot cake!](https://www.youtube.com/watch?v=fFqMSAI8quI&t=667s)
 
 ### About Sharyn
 
