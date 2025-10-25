@@ -1,3 +1,7 @@
+<head>
+  <link rel="favicon" type="image/png" href="./images/favicon.png">
+</head>
+
 ![logo](./images/logo.avif)
 
 ### Where to Find Us
