@@ -21,9 +21,11 @@ We ship! [Call us](tel:18453950653) or [email us](mailto:questions@thecakeladyha
 | Sat | 9 - 6 |
 | Sun | Closed |
 
-### Social Media
+### Links
 - [Facebook](https://www.facebook.com/cakelady2561/)
 - [Instagram](https://www.instagram.com/originalcakelady/)
+- [Google Maps](https://goo.gl/maps/NAPLWLsCb5Sj2cEA9)
+- [Yelp](https://www.yelp.com/biz/the-cake-lady-desserts-and-cafe-harriman)
 
 ### About Sharyn
 
