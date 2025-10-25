@@ -8,6 +8,9 @@
 
 [845.395.0653](tel:18453950653)
 
+### Shipping
+We ship! [Call us](tel:18453950653) or [email us](mailto:questions@thecakeladyharriman.com?subject=I%20have%20a%20question%20about%20shipping) for more details!
+
 ### Hours
 
 | Day | Hours |
