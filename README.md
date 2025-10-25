@@ -1,6 +1,4 @@
-<head>
-  <link rel="favicon" type="image/png" href="./images/favicon.png">
-</head>
+<link rel="shortcut icon" type="image/png" href="./images/favicon.png">
 
 ![logo](./images/logo.avif)
 
